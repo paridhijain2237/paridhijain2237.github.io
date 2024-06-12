@@ -6,7 +6,7 @@ Paridhi Jain.
 Robotics and Automation Student.
 At DBRA-SOSE, DWARKA, SECTOR-5
 
-
+![Profile Picture](IMG-20240611-WA0022[1].jpg)
 
 
 
